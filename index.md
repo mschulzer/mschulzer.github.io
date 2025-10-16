@@ -1,3 +1,3 @@
 ### Morten Schultz
->About
+> About
 PhD-Fellow at DIKU, University of Copenhagen.
